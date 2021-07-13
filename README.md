@@ -1,0 +1,1 @@
+# lastEdition-of-palestine-spirit
